@@ -1,0 +1,1 @@
+Sounds like a great plan! To get started, what type of project or software is this README template for? 
